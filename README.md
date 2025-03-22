@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **v.zakic09@gmail.com**
 
-- ⚡ Fun fact **i hate muslims**
+- ⚡ Fun fact **I love football**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
